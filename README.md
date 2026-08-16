@@ -1,1 +1,1 @@
-# do-ru-konu-
+# do-ru-konu- benim bir projem
